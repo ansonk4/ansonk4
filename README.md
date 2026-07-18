@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-winnable
+I'm just going to put my foot on the floor and I'm not lifting til I see god or the checkered flag
